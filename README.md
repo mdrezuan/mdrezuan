@@ -1,6 +1,7 @@
+![Iam Professional Graphic Designer](https://media-exp2.licdn.com/dms/image/C5616AQElOMAWYwsadQ/profile-displaybackgroundimage-shrink_200_800/0/1656221148054?e=1661990400&v=beta&t=W8zPQKQU7xAQ77gePe75mAsm07E8PcUEim3b5G0ngdI)
 ### Hi there 👋, I.m Md.Rezun
 #### Iam Professional Graphic Designer
-![Iam Professional Graphic Designer](https://media-exp2.licdn.com/dms/image/C5616AQElOMAWYwsadQ/profile-displaybackgroundimage-shrink_200_800/0/1656221148054?e=1661990400&v=beta&t=W8zPQKQU7xAQ77gePe75mAsm07E8PcUEim3b5G0ngdI)
+
 
 Creative graphic designer with innovative ideas and a unique approach to visuals. More than seven years of experience developing designs for print media, online websites, video, and advertising. Solid understanding of marketing principles and advertising techniques. Great attention to detail and a talent for creating memorable visual designs. Enthusiastic team player who is committed to delivering top results on time and within the budget. Passion for keeping clients satisfied with each project.
 
